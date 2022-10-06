@@ -6,4 +6,4 @@ Wassup🙋‍♂️
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=BogdanDirtyDwarf&layout=compact)](https://github.com/BogdanDirtyDwarf/) 
 
 ### Contacts:
-- [Telegram](https://t.me/dirtydwarf)
+- **[Telegram](https://t.me/dirtydwarf)**
