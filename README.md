@@ -7,3 +7,5 @@ Wassup🙋‍♂️
 
 ### Contacts:
 - **[Telegram](https://t.me/dirtydwarf)**
+
+P.S. Don't call me Russian. I'm just a citizen of Russia
